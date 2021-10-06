@@ -1,2 +1,2 @@
 # iaalcantara.github.io
-Portifólio Ingrydt Alcântara.
+Portfólio Ingrydt Alcântara.
